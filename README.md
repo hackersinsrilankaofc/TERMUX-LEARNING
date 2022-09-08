@@ -17,3 +17,11 @@
 - ☬ Don't Send Links.
 
 [+] Teaching By Unknown Exploiter.
+
+
+> Click WA logo to Join Support Group 👇
+<br>
+
+  [![join](https://github.com/Alien-alfa/PublicBot/blob/main/wlogo.svg.png)](https://chat.whatsapp.com/Bieu0UkkKRw3qTZISj8BkM)
+
+  <div align="center">
